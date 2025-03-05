@@ -1,1 +1,1 @@
-Here, you can find my certificates, accolades, diplomas, and other achievements.
+You can find my certificates, accolades, diplomas, and other achievements.
